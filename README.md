@@ -1,1 +1,1 @@
-# rishabh_fintect_public
+# rishabh_fintech_public
